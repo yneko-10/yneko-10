@@ -1,5 +1,5 @@
 hi i'm kaelyn!
-24 y/o aspiring software dev + future game dev in the future... mayhaps...?
+25 y/o aspiring software dev + future game dev in the future... mayhaps...?
 i use they/them pronouns and i'm nonbinary! lookin forward to learning new things :3
 
 <!---
